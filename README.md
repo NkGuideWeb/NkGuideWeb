@@ -1,4 +1,4 @@
-![Banner](https://geeksgod.com/wp-content/uploads/2020/05/Understanding-of-a-Web-Developer.png)
+![Banner](https://learnwithshikha.com/wp-content/uploads/2021/01/web-deve.png)
 
 ### Hello there, My name is Nikhil 😎
 
