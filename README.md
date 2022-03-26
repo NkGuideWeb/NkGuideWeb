@@ -12,9 +12,9 @@ because tool itself developed by some specific programming language and without 
 
 ### Short Bio
 > ~~I choose this job because i have to earn money to take outside my girlfriend for lunch and dinner~~ 😉
-- **Bornday** > 11 November 
-- **Funny Part** > Am I not funny?
-- **Staus**  > Working towards self improvement*
+- **Bornday**  🍰 11 November 
+- **Funny Part** 🤖  Am I not funny?
+- **Staus**    🎯 Working towards self improvement*
 - **Address** [Click here](https://goo.gl/maps/e1ifrpNhoxes2phq8) 
 
 
